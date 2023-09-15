@@ -1,2 +1,2 @@
-# inka
+# kain-wedding
 coba-coba
